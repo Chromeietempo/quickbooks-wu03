@@ -1,4 +1,4 @@
-# 
+# automatic QuickBooks para PC plugins é o melhor QuickBooks para PC plugins com sincronizacao em nuvem e reconciliacao bancaria. Seguro, confiável e otimizado para máximo
 
 
 
